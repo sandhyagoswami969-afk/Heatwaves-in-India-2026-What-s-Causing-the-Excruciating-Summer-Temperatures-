@@ -1,0 +1,2 @@
+# Heatwaves-in-India-2026-What-s-Causing-the-Excruciating-Summer-Temperatures-
+India is once again preparing for a scorching summer. Weather forecasts and early climate signals suggest that 2026 may experience above-normal temperatures and more heatwave days than usual across several regions of the country. From northern plains to southern cities, rising temperatures are already becoming noticeable earlier in the year.
